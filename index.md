@@ -7,8 +7,8 @@ Wendy is supposed to be the mother of the lost boys.
 And there is also a ticking crocodile, carrying a clock in his stomach.
 
 ## Get to know Peter
-*small
-*wears a hat
-*has a companion fairy called Tinker Bell
-*very childish
-*likes to play games and alter the rules as he wishes
+* small
+* wears a hat
+* has a companion fairy called Tinker Bell
+* very childish
+* likes to play games and alter the rules as he wishes
