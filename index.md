@@ -16,3 +16,5 @@ And there is also a ticking crocodile, carrying a clock in his stomach.
 Peter Pan about finding the way to neverland:
 
 > Second star to the right and straight on 'til morning.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/a/a0/PeterPan_Statue_Londres.jpg"=/>
