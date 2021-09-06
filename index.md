@@ -11,7 +11,7 @@ And there is also a ticking crocodile, carrying a clock in his stomach.
 * wears a hat
 * has a companion fairy called Tinker Bell
 * very childish
-* likes to play games and alter the rules as he wishes
+* likes to play games and change the rules at it suits him
 
 Peter Pan about finding the way to neverland:
 
